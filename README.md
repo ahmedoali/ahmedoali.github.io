@@ -17,7 +17,7 @@ I am always interested in working on projects requiring statistics and data anal
 
 - My work experience can be found on my [Linkedin](https://www.linkedin.com/in/ahmedosmanali/).
 
-- My github is linked on the right and contains work that I have carried out and will continue to be added.
+- My github is linked on the left and contains work that I have carried out and will continue to be added.
 
 
 
