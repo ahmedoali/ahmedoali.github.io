@@ -10,5 +10,5 @@ I am currently a Statistician working in Market Research with a background of st
 I am always interested in working on projects requiring statistics and data analysis. Feel free to contact [me](ahmedoali96@gmail.com) to discuss. 
 
 
-![This is an image](https://myoctocat.com/assets/images/base-octocat.svg)
+![https://www.linkedin.com/in/ahmedosmanali/](https://www.google.com/url?sa=i&url=https%3A%2F%2Fwww.linkedin.com%2Fcompany%2Flinkedin&psig=AOvVaw3wtYepK_ll-Zol6dJbDr00&ust=1637275924049000&source=images&cd=vfe&ved=0CAsQjRxqFwoTCIiG76C-oPQCFQAAAAAdAAAAABAD)
 
