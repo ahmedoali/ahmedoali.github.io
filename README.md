@@ -9,3 +9,6 @@ I am currently a Statistician working in Market Research with a background of st
 
 I am always interested in working on projects requiring statistics and data analysis. Feel free to contact [me](ahmedoali96@gmail.com) to discuss. 
 
+
+![This is an image](https://myoctocat.com/assets/images/base-octocat.svg)
+
