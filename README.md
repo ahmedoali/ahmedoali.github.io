@@ -9,6 +9,15 @@ I am currently a Statistician working in Market Research with a background of st
 
 I am always interested in working on projects requiring statistics and data analysis. Feel free to contact [me](ahmedoali96@gmail.com) to discuss. 
 
+### More information links
 
-![https://www.linkedin.com/in/ahmedosmanali/](https://www.google.com/url?sa=i&url=https%3A%2F%2Fwww.linkedin.com%2Fcompany%2Flinkedin&psig=AOvVaw3wtYepK_ll-Zol6dJbDr00&ust=1637275924049000&source=images&cd=vfe&ved=0CAsQjRxqFwoTCIiG76C-oPQCFQAAAAAdAAAAABAD)
+- I work with [Agribusiness Solutions Hub](https://agribusinesssolutionshub.com/about_/) on Statistical research in Somalia. A short profile can be found on the website.
+
+- [Linkedin](https://www.google.com/url?sa=i&url=https%3A%2F%2Fwww.vectorico.com%2Flinkedin-icon-squircle%2F&psig=AOvVaw0b-K7CoLQgmFjM3fMzeeZM&ust=1637276709402000&source=images&cd=vfe&ved=0CAsQjRxqFwoTCLj_65fBoPQCFQAAAAAdAAAAABAJ)   [Linkedin](https://www.linkedin.com/in/ahmedosmanali/) 
+
+- My github is linked on the right and contains work that I have carried out and will continue to be added.
+
+
+
+
 
